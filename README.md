@@ -1,5 +1,10 @@
 # 5393Project
+1.fault analysis tool developed within the last three years
+2. Present the tool
+3. Write a report on the tool study
 
+
+DATE:
 1. 10/10 email professor for approval 
 2. 10/13 proposal due
 3. 11/24 project due
