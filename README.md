@@ -12,3 +12,14 @@ DATE:
 3. 11/24 project due
 4. 12/05,12/12 project presentation
 5. 11/14 exam
+
+
+
+Report Link:
+https://docs.google.com/document/d/1xRFitNPWaY0CFWHWLOsITC_eveaCubpU-TUmxG5Gef0/edit?usp=sharing
+
+
+
+Proposal Link:
+https://docs.google.com/document/d/1nPt3EpQsk2ZcT_d1OZ7kai1xOckQNeID4N3LcGD_uZE/edit?usp=sharing
+
