@@ -23,3 +23,7 @@ https://docs.google.com/document/d/1xRFitNPWaY0CFWHWLOsITC_eveaCubpU-TUmxG5Gef0/
 Proposal Link:
 https://docs.google.com/document/d/1nPt3EpQsk2ZcT_d1OZ7kai1xOckQNeID4N3LcGD_uZE/edit?usp=sharing
 
+
+Slides Link:
+https://docs.google.com/presentation/d/1ACUivvuZQZAB8ugcTavgn-11VzpGAwPrp8uRzB5rCKU/edit?usp=sharing
+
